@@ -6,4 +6,6 @@ Church Workshop Bible Cut Create Connect Trim Workshop Turn $1 DollarTree Bibles
 ## 3. Donation Disclamers
 ![](https://lh3.googleusercontent.com/proxy/N_22Op-cEOVV3rVmZEyMgG4TpZf47sH74yP_frXOxllWifGZWq9YfmGpr7LroNdXlQbsZcDry22sMBYR10GVr7rbPMKWZHYhWPhycHDb_F0MgHhUpvXuv96RoRpJgnF777DaD57A)
 
+
+![](https://lh3.googleusercontent.com/proxy/N_22Op-cEOVV3rVmZEyMgG4TpZf47sH74yP_frXOxllWifGZWq9YfmGpr7LroNdXlQbsZcDry22sMBYR10GVr7rbPMKWZHYhWPhycHDb_F0MgHhUpvXuv96RoRpJgnF777DaD57A)
 ![](https://images-na.ssl-images-amazon.com/images/I/81dnUA0aSXL._AC_SL1500_.jpg)
